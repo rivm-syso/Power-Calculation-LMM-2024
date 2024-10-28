@@ -1,0 +1,1 @@
+# Power-Calculation-LMM-2024
